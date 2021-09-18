@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bingus-bongus
+- 👀 I’m interested in: Your mom, Danganronpa, and music.
+- 🌱 I’m currently learning: Deez nuts.
+- 💞️ I’m looking to collaborate on: I'm not.
+- 📫 How to reach me: Don't.
